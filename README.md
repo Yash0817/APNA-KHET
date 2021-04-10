@@ -1,0 +1,2 @@
+# APNA-KHET
+India is called the land of farmers, as most of the people of the country are directly or indirectly involved in the agriculture sector.         Agriculture in India also contributes significantly to gross domestic product (GDP). In the situation of food security, rural employment and environmental techniques like soil conservation, management of natural resources, sustainable agriculture are essential for the development of the entire rural area. Here Apna Khet boughts you the feel of India
